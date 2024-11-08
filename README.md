@@ -1,6 +1,6 @@
 # Modern-Warfare-2-3-and-Black-Ops-6-AI-Aimbot
 
-Free to use new hack for Black Ops 6
+Free to use new hack (AI) for Black Ops 6, MW 2, MW3 and Cold War
 
 Gameplay: https://youtu.be/qjLWNXCyxD8
 
