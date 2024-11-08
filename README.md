@@ -1,7 +1,5 @@
 # Modern-Warfare-2-3-and-Black-Ops-6-AI-Aimbot
 
-
-# Black-Ops-6-Cheats-including-Unlocker-Tool-and-RICOCHET-Bypass
 Free to use new hack for Black Ops 6
 
 Gameplay: https://youtu.be/qjLWNXCyxD8
